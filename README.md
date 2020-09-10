@@ -1,5 +1,1 @@
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/camera1_l.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/queenanne.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/roofcam2ne500x281.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/seatac.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/waterfront.jpg)
+
