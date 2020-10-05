@@ -1,0 +1,5 @@
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/146-1%20Rt%20146%20Department%20of%20Health.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/146-3a%20Rt%20146%20N%20@%20Charles%20St.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/6-4%20Rt%206%20W%20DMS%20and%20Camera.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/95-16%20I-95%20S%20@%20Rt%2010.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/RhodeIsland/blob/master/Memorial%20Blvd%20@%20Steeple%20St.jpg)
